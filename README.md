@@ -22,4 +22,4 @@ Here are some examples of my most recent work using Tayausi Sketches on a simple
 
 
 ### Contact
-Reachout to me for commossions, contracts and or any questions you may have at jesse.soto56@yahoo.com
+Reachout to me for commossions, contracts and or any questions you may have at [Link](https://www.upwork.com/o/profiles/users/_~01b3d0e4726933be10/)
