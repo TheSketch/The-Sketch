@@ -1,12 +1,12 @@
-## Welcome to GitHub Pages
+## Freelance Illusrater | Artist 
 
-You can use the [editor on GitHub](https://github.com/TheSketch/The-Sketch/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
-
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+Here are some examples of my most recent work using Tayausi Sketches on a simple setup that consists my MacBook and mouse.
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7lhKxzBaEBA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-### Markdown
+<iframe width="560" height="315" src="https://www.youtube.com/embed/djmVraSl2ig" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+### Original Pieces 
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
 
