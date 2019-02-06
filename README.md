@@ -23,7 +23,7 @@ Here are some examples of my most recent works using Tayausi Sketches software o
 
 
 ## Check me out on Instagram
-[Link](https://www.instagram.com/jessejosephsoto/) 
+[Instagram](https://www.instagram.com/jessejosephsoto/) 
 
 
 
