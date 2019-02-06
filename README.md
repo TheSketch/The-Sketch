@@ -18,6 +18,10 @@ Here are some examples of my most recent works using Tayausi Sketches software o
 ## A Drop
 ![beach sketch](https://user-images.githubusercontent.com/47341286/52253402-3f7bde80-28cd-11e9-8399-a09f80ff688a.jpeg)
 
+## Misty Leaf
+![misty leaf](https://user-images.githubusercontent.com/47341286/52320757-ad400d00-2996-11e9-9292-348edb148ba3.jpg)
+
+
 ## Check me out on Instagram
 [Link](https://www.instagram.com/jessejosephsoto/) 
 
