@@ -10,7 +10,7 @@ Here are some examples of my most recent work using Tayausi Sketches on a simple
 
 ### Original Pieces 
 
-## Autamn Still
+## Autumn Still
 ![the sketch](https://user-images.githubusercontent.com/47341286/52253383-22471000-28cd-11e9-8ea3-aadd52a05d15.jpeg)
 
 ## A Drop
