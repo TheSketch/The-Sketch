@@ -3,12 +3,19 @@
 Hello, my name is Jesse Soto. I've created a Youtube channel named The Sketch where I upload raw, unedited footage of me finding my way to a masterpiece. I'm a creator/illustrator/artist up for hire. 
 
 Here are some examples of my most recent works using Tayausi Sketches software on a simple setup consisting of a MacBook and mouse.
+### Original Pieces 
 
+## Autumn Still
 <iframe width="560" height="315" src="https://www.youtube.com/embed/7lhKxzBaEBA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+## A Drop
 <iframe width="560" height="315" src="https://www.youtube.com/embed/djmVraSl2ig" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+## Misty Leaf
 <iframe width="560" height="315" src="https://www.youtube.com/embed/9wHXRDyB4U0" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+## In The Breeze, Still
+<iframe width="560" height="315" src="https://www.youtube.com/embed/JnoAMxdFqe8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ### Original Pieces 
 
