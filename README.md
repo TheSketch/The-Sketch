@@ -21,7 +21,8 @@ Here are some examples of my most recent works using Tayausi Sketches software o
 ## Misty Leaf
 ![misty leaf](https://user-images.githubusercontent.com/47341286/52320757-ad400d00-2996-11e9-9292-348edb148ba3.jpg)
 
-
+## In The Breeze, Still
+![screen shot 2019-02-07 at 01 03 53](https://user-images.githubusercontent.com/47341286/52397687-f61dc180-2a7b-11e9-8d94-323abeb265d9.png)
 ## Check me out on Instagram
 [Instagram](https://www.instagram.com/jessejosephsoto/) 
 
