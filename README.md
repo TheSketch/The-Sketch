@@ -29,8 +29,9 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 ![misty leaf](https://user-images.githubusercontent.com/47341286/52320757-ad400d00-2996-11e9-9292-348edb148ba3.jpg)
 
 ## In The Breeze, Still
-![screen shot 2019-02-07 at 01 03 53](https://user-images.githubusercontent.com/47341286/52397687-f61dc180-2a7b-11e9-8d94-323abeb265d9.png)
-## Check me out on Instagram
+![screen shot 2019-02-07 at 01 03 53](https://user-images.githubusercontent.com/47341286/52451959-c10a8100-2b06-11e9-8aa0-35e18cdaad75.png)
+
+## Check out my Instagram
 [Instagram](https://www.instagram.com/jessejosephsoto/) 
 
 
