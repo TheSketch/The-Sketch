@@ -37,4 +37,5 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 
 
 ### Commissions | Bookings 
-For commissions, illustration contracts, and or booking info: jesse.soto56@yahoo.com
+For commissions, illustration contracts, and or booking info: jesse.soto56@yahoo.com | (313)652-6254
+
