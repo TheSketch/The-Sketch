@@ -36,5 +36,5 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 
 
 
-### Contact
+### Contact ### | Rent an Artist for a Day 
 Reach out to me for art commissions, contracts and or any questions you may have at jesse.soto56@yahoo.com
