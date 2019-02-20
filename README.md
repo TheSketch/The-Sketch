@@ -1,6 +1,6 @@
 ## Freelance Illusrater | Artist 
 
-Hello, my name is Jesse Soto. I've created a Youtube channel called The Sketch where I upload raw, unedited footage of me finding my way to a masterpiece. I'm a creator/illustrator/artist up for hire. 
+Hello, my name is Jesse Soto A.K.A The Sketch. I've created a Youtube channel called The Sketch where I upload raw, unedited footage of me finding my way to a masterpiece. I'm a creator/illustrator/artist up for hire. 
 
 Here are some of my most recent works using Tayausi Sketches software on a simple setup consisting of a MacBook and mouse.
 ### Original Pieces 
