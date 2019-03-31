@@ -31,20 +31,20 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 ## In The Breeze, Still
 ![screen shot 2019-02-07 at 01 03 53](https://user-images.githubusercontent.com/47341286/52451959-c10a8100-2b06-11e9-8aa0-35e18cdaad75.png)
 
-Proof of parallel universes? Insider trading? Social engineering?
+# Proof of parallel universes? Insider trading? Social engineering?
 
 ![Screen Shot 2019-03-30 at 21 39 17](https://user-images.githubusercontent.com/47341286/55284196-37717580-5337-11e9-98dd-3951599a84f7.png)
                                                                                                  (Photo from Google Maps)
 
-No….! 
+## No….! 
 
-It’s just good ole capitalism!
+## It’s just good ole capitalism!
 
 
 
-Well, maybe. But its also Newtons third law of thermal dynamics:
+## Well, maybe. But its also Newtons third law of thermal dynamics:
 
-Every action has an equal of opposite reaction.
+## Every action has an equal of opposite reaction.
 
 
 If we were to suffer a catastrophic event such as a nuclear winter and should these two structures remain intact similar to the bank of Japan over which the atom bomb was dropped. And should a civilization many years in the future extra or ordinary should come across it, these two structures beside one another would say it all. Or better yet, lets laser inscribe it into a golden plate and on the other side have the coordinates of our in habitants along with the binary layout of our genome and blast into outerspace and sit back and wait for a response.
