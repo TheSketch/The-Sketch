@@ -34,7 +34,7 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 Proof of parallel universes? Insider trading? Social engineering?
 
 ![Screen Shot 2019-03-30 at 21 39 17](https://user-images.githubusercontent.com/47341286/55284196-37717580-5337-11e9-98dd-3951599a84f7.png)
-
+(Photo from Google Maps)
 No….! 
 
 It’s just good ole capitalism!
