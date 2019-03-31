@@ -67,9 +67,8 @@ In order to bring this into the social arena we would all have to want it and to
 For other countries looking towards the west as one would their idol; My only heed you caution in your resolution to become more westernized, although we are the land of the free, as a social whole and member of the global frontier may our faults come to light sooner than our will to out pace them with ignorance.  
   
 
-It’s nothing new America is the foremost face of the new globalization. As we are in the age of materialism America has become a brand all on its own aside from the very parts that make it up.
+It’s nothing new America is the foremost powerhouse and the face of globalization. As we are in the age of materialism, America has become a brand all on its own aside from the very parts that make it up.
 
-As an American I have an since of responsibility to my country but on a grander scale to the world. If other cultures become overrun by this runaway freight train then humanity maybe well on its way into a dark age.
 
 
 
