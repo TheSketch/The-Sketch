@@ -57,7 +57,7 @@ You see after all instant gratification has become the norm. Sensory ingestion o
 
 At this point you may be asking: Where does it all stem from? Asking this leads us only one step away from a viable solution.
 
-One proposition for a solution is not a quick one, not by a long shot, but rather one that may very well nip-it-in-the-butt, that is, across the board education on emotional resilience.
+One proposition for a solution is not a quick one, not by a long shot, but rather one that may very well nip-it-in-the-bud, that is, across the board education on emotional resilience.
 
 Ancient Indian knowledge on emotional resiliance is the oldest uncovered body of knowledge that may hold the key to our current and futures civility. We start in the very beginning, in academia. The amount of resources and emphasis we put in teaching emotional awareness to grade school children could heed profound results regarding how they begin to learn about their emotions and how to deal with them appropriately. Western society is just beginning to take interest in these ancient practices through undertaking yoga, courses in mindfulness training, meditation. In fact, the U.S. military has begun to take notice on the many benefits this age ole knowledge has to offer.   
 
