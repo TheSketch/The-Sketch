@@ -69,7 +69,7 @@ For other countries looking towards the West as one would their idol; My only he
 
 It’s nothing new America is the foremost powerhouse and the face of globalization. As we are in the age of materialism, America has become a brand all on its own aside from the very parts that make it up.
 
-
+Therefore, as an American I to am held resposible by this.
 
 
 ## Check out my Instagram
