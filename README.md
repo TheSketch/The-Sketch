@@ -1,4 +1,4 @@
-## Freelance Illusrater | Artist | Blogger 
+# Freelance Illusrater | Artist | Blogger 
 
 Hello, my name is Jesse Soto A.K.A The Sketch. I've created a Youtube channel called The Sketch where I upload raw, unedited footage of me finding my way to a masterpiece. I'm a creator/illustrator/artist/blogger up for hire. 
 
