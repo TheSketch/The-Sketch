@@ -36,7 +36,7 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 ![Screen Shot 2019-03-30 at 21 39 17](https://user-images.githubusercontent.com/47341286/55362654-3ad44080-54a0-11e9-84a5-eba13d15c709.png)
                                                                                            (Photo from Google Maps)
 
-## No….! 
+## No….
 
 ## It’s just good-ole capitalism!
 
