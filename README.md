@@ -42,9 +42,9 @@ Here are some of my most recent works using Tayausi Sketches software on a simpl
 
 
 
-## Well, maybe. But its also Newton's third law of thermal dynamics:
+## Well, maybe. But its also Newton's third law:
 
-## Every action has an equal or opposite reaction.
+## For every action, there is an equal and opposite reaction.
 
 
 If we were to suffer a catastrophic event such as a nuclear winter and should these two structures remain intact similar to the bank of Japan over which the atomic bomb was dropped. And should a civilization many years in the future extra or ordinary should come across it, these two structures beside one another would say it all. Or better yet, maybe we should laser inscribe it into a golden plate and on the other side have the coordinates of our inhabitants along with the binary layout of our genome, blast into outer space, sit back and wait for a response.
