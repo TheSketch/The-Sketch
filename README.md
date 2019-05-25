@@ -59,19 +59,16 @@ At this point you may be asking: Where does it all stem from? Asking this leads 
 
 One proposition for a solution is not a quick one, not by a long shot, but rather one that may very well nip-it-in-the-bud, that is, across the board education on emotional resilience.
 
-Ancient Indian knowledge on emotional resilience is the oldest uncovered body of knowledge that may hold the key to our current and future’s civility. We start at the very beginning, in academia. The amount of resources and emphasis we pour into teaching emotional awareness to grade school children could heed profound results regarding how they begin to learn about their emotions and how to deal with them appropriately. Western society is just beginning to take an interest in these ancient practices through undertaking yoga, courses in mindfulness training and meditation. In fact, the U.S. military has begun to take notice of the many benefits the age-ole knowledge has to offer.   
+Ancient Indian knowledge on emotional resilience is the oldest uncovered body of knowledge that may hold the key to our current and future’s civility. We start at the very beginning, in academia. The amount of resources and emphasis we pour into teaching emotional awareness to grade school children could heed profound results regarding how they begin to learn about their emotions and how to deal with them appropriately. Western society is just beginning to take an interest in these ancient practices through undertaking yoga, courses in mindfulness training and meditation. In fact, the U.S. military has begun to take notice of the many benefits the age-ole knowledge has to offer.
+
+## Dr. Oz Shares The Benefits of Mindfulness Meditation  <iframe width="560" height="315" src="https://www.youtube.com/embed/bb5OOO_0HXs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
 In order to bring this into the social arena, we would all have to want it and to work together towards making it a reality. These techniques would infuse every facet of society and once it becomes common knowledge only then will it truly take shape. I’m no social engineer, just a concerned citizen working towards a brighter future for all beings. Therefore the following would be some suggestions. Begin with our public school systems, promoting the importance of emotional awareness and developing curricula that fosters the development of healthy emotional response systems. Also, by encouraging the community through state-run programs such as civic center community outreach. Up to our elected official's haven taken courses as a prerequisite. This would only be the beginning, there should be an emphasis on mental health issues and its solutions through media outlets public and private as of now. This is the only national emergency I’m aware of, the mental health crisis currently not talked about.  After all, we all play our individual roles at a collective cost. The cost of not understanding one another through a faulty system of emotional reaction juxtaposed to a system of healthy emotional response.   
 
+## Sesame Street: Common and Colbie Caillat-"Belly Breathe" with Elmo  <iframe width="560" height="315" src="https://www.youtube.com/embed/_mZbzDOpylA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
-It’s nothing new America is the foremost powerhouse and the face of globalization. As we are in the age of materialism, America has become a brand all on its own aside from the very parts which make it up. For other countries looking towards the West as one would their idol, a heed of caution in your resolution to become more westernized, although we are the land of the free, as a social whole and member of the global frontier, may our faults come to light sooner than our will to outpace them in ignorance.  
-  
-As an American, I to am to be held responsible by this.
-
-
-## Check out my Instagram
+## My Instagram
 [Instagram](https://www.instagram.com/jessejosephsoto/) 
-
 
 
 ### Commissions | Bookings 
