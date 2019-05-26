@@ -65,7 +65,7 @@ Ancient Indian knowledge on emotional resilience is the oldest uncovered body of
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bb5OOO_0HXs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
-## How To Do Abdominal (Belly) Breathing
+## How To Do Abdominal (Belly) Breathing By Kevin W. Chen, Ph.D. MPH
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/sg9XYicHqKo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
