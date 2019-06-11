@@ -61,6 +61,9 @@ One proposition for a solution is not a quick one, not by a long shot, but rathe
 
 Ancient Indian knowledge on emotional resilience is the oldest uncovered body of knowledge that may hold the key to our current and future’s civility. We start at the very beginning, in academia. The amount of resources and emphasis we pour into teaching emotional awareness to grade school children could heed profound results regarding how they begin to learn about their emotions and how to deal with them appropriately. Western society is just beginning to take an interest in these ancient practices through undertaking yoga, courses in mindfulness training and meditation. In fact, the U.S. military has begun to take notice of the many benefits the age-ole knowledge has to offer.
 
+## Inner Peace 
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/IU87LohtabA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 ## Dr. Oz Shares The Benefits of Mindfulness Meditation  
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bb5OOO_0HXs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
