@@ -68,9 +68,6 @@ Ancient Indian knowledge on emotional resilience is the oldest uncovered body of
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/bb5OOO_0HXs" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe> 
 
-## How To Do Abdominal (Belly) Breathing By Kevin W. Chen, Ph.D. MPH
-
-<iframe width="560" height="315" src="https://www.youtube.com/embed/sg9XYicHqKo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 
 In order to bring this into the social arena, we would all have to want it and to work together towards making it a reality. These techniques would infuse every facet of society and once it becomes common knowledge only then will it truly take shape. I’m no social engineer, just a concerned citizen working towards a brighter future for all beings. Therefore the following would be some suggestions. Begin with our public school systems, promoting the importance of emotional awareness and developing curricula that fosters the development of healthy emotional response systems. Also, by encouraging the community through state-run programs such as civic center community outreach. Up to our elected official's haven taken courses as a prerequisite. This would only be the beginning, there should be an emphasis on mental health issues and its solutions through media outlets public and private as of now. This is the only national emergency I’m aware of, the mental health crisis currently not talked about.  After all, we all play our individual roles at a collective cost. The cost of not understanding one another through a faulty system of emotional reaction juxtaposed to a system of healthy emotional response.   
@@ -78,6 +75,10 @@ In order to bring this into the social arena, we would all have to want it and t
 ## Sesame Street: Common and Colbie Caillat-"Belly Breathe" with Elmo  
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/_mZbzDOpylA" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
+
+## How To Do Abdominal (Belly) Breathing By Kevin W. Chen, Ph.D. MPH
+
+<iframe width="560" height="315" src="https://www.youtube.com/embed/sg9XYicHqKo" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
 ## My Instagram
 [Instagram](https://www.instagram.com/jessejosephsoto/) 
